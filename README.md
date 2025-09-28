@@ -1,1 +1,1 @@
-#### iousaismos.com is a map of Jewish sites of interest in Salonica (Thessaloniki)
+#### ioudaismos.com is a map of Jewish sites of interest in Salonica (Thessaloniki)
